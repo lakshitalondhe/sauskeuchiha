@@ -1,2 +1,2 @@
-# sauskeuchiha
-a boy from uchiha clan
+# sasukeuchiha
+sasuke uchiha
